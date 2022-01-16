@@ -1,0 +1,4 @@
+- 👋 Hi, I’m HydroniX
+- 👀 I’m interested in Discord
+- 🌱 I’m currently learning Python
+- 📫 How to reach me Discord: HydroniX#0066
